@@ -87,8 +87,8 @@ DNIs: People below 14, oversensitive people(we're just not good w/ them so pls d
 </details>
 <details>
 <summary><b>Would appreciate</b></summary> 
-. We would appreciate if you can be patient with us when we forget about things, and maybe try to re-cap our memory!
 
+. We would appreciate if you can be patient with us when we forget about things, and maybe try to re-cap our memory!
 
 . Use tone-tags on serious topics.
 
