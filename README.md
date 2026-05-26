@@ -21,7 +21,7 @@
 
 . Bodily 17, and happily taken by our sweet bf :-) *his github is @perilkitty btw*
 
-. Mostly online on PT alot, just to grind for playtimes LOL, but if you wanna int w/ us be sure to whisper.
+. Mostly online on PT alot, just to grind for playtimes LOL, but if you wanna int with us be sure to whisper.
 
 . We spent most of our time studying, so you can always see us offtab/afk
 
