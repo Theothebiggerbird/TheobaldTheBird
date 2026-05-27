@@ -42,7 +42,7 @@
 
 . Somehow mentally sane
 
-. Currently taking therapy
+. Currently in psychology therapy. 
 
 . We're pretty busy with life, even if we're online 24/7. We got school-stuff & work. So uhh if we're friends, beware of super duper late responses from us..
 
