@@ -32,6 +32,8 @@
 . We use both singular & plural, but. When speaking with others, we mostly use singular instead of plural to adress ourselves. So there won't be any confusion. We'll mostly use plural only when adressing to every1 in the sys.
 
 . We're multilingual (English & Chinese)
+
+. We only use tonetags on serious topics, so if you really require tone-tags on conversation*s*. Please inform us about it & ask us to use tone-tags!!
 </details>
 <details>
 <summary><b>B4YI</b></summary> 
