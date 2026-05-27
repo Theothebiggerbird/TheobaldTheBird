@@ -9,7 +9,7 @@
 <details>
 <summary><b>Info</b></summary>
 
-.You can call us Chase/Horror. Or just the name of the character we're currently using on PT.
+.You can call us Chase/Horror/Chance/Echo/Dusty/MS, the name of the character we're currently using on PT or any nicknames is fine!! (as long as it's positive)
 
 . We use Mirror/Any pronouns!!
 
