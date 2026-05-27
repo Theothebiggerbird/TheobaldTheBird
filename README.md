@@ -21,11 +21,13 @@
 
 . Bodily 17, and happily taken by our sweet bf :-) *his github is @perilkitty btw*
 
-. Mostly online on PT alot, just to grind for playtimes LOL, but if you wanna int with us be sure to whisper.
+. Mostly online on PT alot, just to grind for playtimes LOL
 
-. We spent most of our time studying, so you can always see us offtab/afk
+. We spent most of our time studying or just watching YT/TT whenver we're on PT, so we're literally always off-tab, even with friends sometimes. That's why it's best to whisper if you want to interact with us..
 
-. We're pretty straight forward when we feel uncomfortable/annoyed, when we do feel uncomfortable/annoyed, we'll talk about it with you directly.
+. But we make sure to spend time with all of our friends!!
+
+. We're pretty straight forward to tell you we feel uncomfortable/annoyed at what you did towards us and we'll talk about it with you directly.
 
 . We use both singular & plural, but. When speaking with others, we mostly use singular instead of plural to adress ourselves. So there won't be any confusion. We'll mostly use plural only when adressing to every1 in the sys.
 
@@ -47,6 +49,8 @@
 . We're pretty busy with life, even if we're online 24/7. We got school-stuff & work. So uhh if we're friends, beware of super duper late responses from us..
 
 . We block **only** if necessary! *(as in if you make us uncomfy, trigger us and such.)*
+
+. We don't ncessarily roleplay unless it's with friends and actually asked beforehand..
 </details>
 <details>
 <summary><b>INTs & DNIs</b></summary> 
