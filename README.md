@@ -13,19 +13,23 @@
 
 . We use Mirror/Any pronouns!!
 
+. <a href="https://en.pronouns.page/@duzttyy">Pronouns
+
 . We're a medically diagnosed OSDD-1B sys. We view each other as 1, but that does not mean we don't have different personalities and likings.
 
 . Medically diagnosed with M.D.D as-well.
 
-. We don't.. know much infos about DIDs spec, because we're highkey too busy with stuff and whenever we're free we're just doing the things we personally enjoy. But, we're currently still researching about it (like infos n such abt alters) even though we're diagnosed w/ OSDD-1b sys. (we're highkey ashamed about this)
+. We don't.. know much infos about DIDs spec, because we're highkey too busy with stuff and whenever we're free we're just doing the things we personally enjoy. But, we're currently still researching about it (like infos n such abt the disorder) even though we're diagnosed w/ OSDD-1b sys. (we're highkey ashamed about this)
 
 . Bodily 17, and happily taken by our sweet bf :-) *his github is @perilkitty btw*
 
-. Mostly online on PT alot, just to grind for playtimes LOL
-
 . We spent most of our time studying or just watching YT/TT whenver we're on PT, so we're literally always off-tab, even with friends sometimes. That's why it's best to whisper if you want to interact with us..
 
-. But we make sure to spend time with all of our friends!!
+. But we make sure to spend time with all of our friends & partner!
+
+. We only hop on PT for our partner & friends, if neither of our partner or friends are online we'll definetly be off-tab.
+
+. PLEASE whisper 2 interact incase, even if we're with friends/partner, we can still be off-tab. But come up and interact with us if you do see us in tab!
 
 . We're pretty straight forward to tell you we feel uncomfortable/annoyed at what you did towards us and we'll talk about it with you directly.
 
@@ -59,10 +63,10 @@
 <details>
 <summary><b>INTs & DNIs</b></summary> 
 
-INTs: Highkey anybdy everybdy
+INTs: Highkey anybdy everybdy (unless ur under the DNIs category)
 
 
-DNIs: People below 14, oversensitive people(we're just not good w/ them so pls dni as we can hurt ur feelings by accident), basic DNI criteria, Endos, Old friends.
+DNIs: People below 14, oversensitive people(we're just not good w/ them so pls dni as we can hurt ur feelings by accident), basic DNI criteria, Endos, Old friends, HH/HB, CountryHuman, Skin copiers (Please don't copy our skins!! if you do we'll mostly confront you and block you afterwards.) Flirting (uhmm only w/ close friends & partner!), Gore likers (general basic gore is okay, just not those people who fantasizes about it yk...)
 
 </details>
   
@@ -109,12 +113,15 @@ DNIs: People below 14, oversensitive people(we're just not good w/ them so pls d
 . Not make fun of us when we do act childish, we tend to be more childish and care-free with people we trust more.
 
 . Not compare us with 1 another <3
+
+. Don't swear so much around us, for the sake of our littl*s*
 </details>
 
 </p>
 <p align="center"> $${\color{#ff757a} c*h \space freely \space unless \space stated \space otherwise }$$
 <p align="center"> $${\color{#7c616b} Sign \space ata \space pls! \space ty }$$
 
+<p align="center"> <a href="https://rentry.co/FedoraFate">Matching Rentry w/ bf! (Not mobile friendly)
 <p align="center">
 <img src="https://media.discordapp.net/attachments/1406866529869627485/1508660163542781992/Untitled48_20260525193622.png?ex=6a1658c4&is=6a150744&hm=da083c6f1dcc69047ee4e4be90d6d843b7e185fb7a53d061f5b4cdb8fc0b9a4b&=&format=webp&quality=lossless&width=970&height=474">
 </p>
