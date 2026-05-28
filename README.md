@@ -53,6 +53,8 @@
 . We block **only** if necessary! *(as in if you make us uncomfy, trigger us and such.)*
 
 . We don't ncessarily roleplay unless it's with friends and actually asked beforehand..
+
+. We don't understand emotion*s* that well.. so hypertically you genuinely need to say it directly to our face on how you feel at times. (If not we can figure out if you're feeling down or not.. sometimes)
 </details>
 <details>
 <summary><b>INTs & DNIs</b></summary> 
