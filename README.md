@@ -66,7 +66,7 @@
 INTs: Highkey anybdy everybdy (unless ur under the DNIs category)
 
 
-DNIs: People below 14, oversensitive people(we're just not good w/ them so pls dni as we can hurt ur feelings by accident), basic DNI criteria, Endos, Old friends, HH/HB, CountryHuman, Skin copiers (Please don't copy our skins!! if you do we'll mostly confront you and block you afterwards.) Flirting (uhmm only w/ close friends & partner!), Gore likers (general basic gore is okay, just not those people who fantasizes about it yk...)
+DNIs: People below 14, oversensitive people(we're just not good w/ them so pls dni as we can hurt ur feelings by accident), basic DNI criteria, Endos, Old friends, HH/HB, CountryHuman, Skin copiers (Please don't copy our skins!! if you do we'll mostly confront you and block you afterwards.. unless you did apologize then we won't necessarily block u.) Flirting (uhmm only w/ close friends & partner!), Gore likers (general basic gore is okay, just not those people who fantasizes about it yk...)
 
 </details>
   
